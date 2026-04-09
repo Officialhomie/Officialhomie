@@ -4,7 +4,7 @@
 
 # OneTrueHomie 👑
 
-### Blockchain Developer · Smart Contract Engineer · Web3 Systems Architect
+### Blockchain Developer · Smart Contract Engineer · Web3 Systems Architect AND DESIGNER
 
 *Lagos, Nigeria*
 
